@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Snogglespike, just exploring the world of programming and learning new things as I go!
